@@ -26,7 +26,7 @@ MUSIC ARTISTS/BANDS: benjixscarlet
 
 ETC: **people who are rude ironically**, animal haters
 
-DNI (really anyone under here + more will get hidden) -
+DNI (really anyone under here + more will get hidden)-
 
 **BASIC DNI (+ anyone under the proship umbrella)**
 

@@ -1,18 +1,14 @@
-🪓 ﹕ korey (or ask)!! ╰╮ENFP ⸝⸝ ₊ ╰↠ he/him + pansexual , , ✶
+🪓 ﹕ impulsive-freak ,, ╰╮ENFP ⸝⸝ ₊ ╰↠ he/him + pansexual , , ✶
 
 -------------- **[ RBYI v !!BOLD IS IMPORTANT!! ]**
 
 BYI-
 
-**1: if you dont know what to call me , call me korey!!**
+**1: i kin alot of characters heavily, so if you kin a character that i do, i ask you interact with caution <3**
 
-**2: i kin alot of characters heavily, so if you kin a character that i do, i ask you interact with caution <3**
+**2: i have a lot of interests, but refuse to interact with the fandom because it is most likely trash.**
 
-**3: i have a lot of interests, but refuse to interact with the fandom because it is most likely trash.**
-
-**4: please use tone tags around me </3**
-
-**5: clearly you all don't read my triggers so if you trigger me im hiding your ass.**
+**3: please use tone tags around me </3**
 
 INTERESTS/LIKES-
 
@@ -36,7 +32,7 @@ DNI (really anyone under here + more will get hidden) -
 
 **FANDOMS: hazbin hotel, helluva boss, the coffin of andy and leyley, countryballs, sprunki, the sun and moon show, alfreds playhouse, dsmp, ANY hoyoverse game, etc.**
 
-**SUPPORTERS/STANS OF: ICP, msi, dream/clay, georgenotfound, wilbur soot, reese (blueycapsules creator), melanie martinez, etc. (wip)**
+**SUPPORTERS/STANS OF: violent j, msi, dream/clay, georgenotfound, wilbur soot, reese (blueycapsules creator), melanie martinez, etc. (wip)**
 
 ETC: anybody who hates on what i like for no god damn reason, ex friends
 

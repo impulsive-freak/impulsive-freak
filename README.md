@@ -30,7 +30,7 @@ DNI (really anyone under here + more will get hidden)-
 
 **BASIC DNI (+ anyone under the proship umbrella)**
 
-**FANDOMS: hazbin hotel, helluva boss, the coffin of andy and leyley, countryballs, sprunki, the sun and moon show, alfreds playhouse, dsmp, ANY hoyoverse game, etc.**
+**FANDOMS: hazbin hotel, helluva boss, the coffin of andy and leyley, countryballs, sprunki, the sun and moon show, alfreds playhouse, dsmp, ANY hoyoverse game, homestuck etc.**
 
 **SUPPORTERS/STANS OF: violent j, msi, dream/clay, george (dsmp), wilbur soot, reese (blueycapsules creator), melanie martinez, etc. (wip)**
 
@@ -38,4 +38,4 @@ ETC: anybody who hates on what i like for no god damn reason, ex friends
 
 --------------
 
-**LAST UPDATED: 5/22/25**
+**LAST UPDATED: 5/26/25**

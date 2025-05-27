@@ -22,7 +22,7 @@ THIN ICE/DNIUF/DNIUID/IWEC-
 
 **FANDOMS: dandys world, tr:ud, ddlc, gravity falls, dsaf, deadplate, crk, qsmp, blueycapsules, murder drones, yandere sim, etc. (there's more im just too lazy to put more)**
 
-MUSIC ARTISTS/BANDS: benjixscarlet
+MUSIC ARTISTS/BANDS: ???
 
 ETC: **people who are rude ironically**, animal haters
 
@@ -32,7 +32,7 @@ DNI (really anyone under here + more will get hidden)-
 
 **FANDOMS: hazbin hotel, helluva boss, the coffin of andy and leyley, countryballs, sprunki, the sun and moon show, alfreds playhouse, dsmp, ANY hoyoverse game, homestuck etc.**
 
-**SUPPORTERS/STANS OF: violent j, msi, dream/clay, george (dsmp), wilbur soot, reese (blueycapsules creator), melanie martinez, etc. (wip)**
+**SUPPORTERS/STANS OF: violent j, msi, dsmp in general, reese (blueycapsules creator), melanie martinez, etc. (wip)**
 
 ETC: anybody who hates on what i like for no god damn reason, ex friends
 
